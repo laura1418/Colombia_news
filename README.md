@@ -1,2 +1,11 @@
 # Colombia_news
-## Novedades tecnológica
+## Espectáculo
+###
+
+## Deportes
+### 
+
+## Arte y cultura
+###
+
+## 
