@@ -16,6 +16,8 @@ Pretemporada: Resultados de los doce amistosos con equipos de Primera
 
 Doce equipos de Primera han disputado este sábado partidos de pretemporada a seis días de que se estrene LaLiga Santander en Mestalla. También debía jugar el Sevilla ante el Aston Villa en Birmingham pero se suspendió su viaje por motivos relacionados con la Covid-19.
 
+
+
 AMISTOSOS DE PRETEMPORADA
 Wolves 0-1 Celta (Final)
 Burnley 0-2 Cádiz (Final)
@@ -35,3 +37,25 @@ FINAL. Acaba el partido y los jugadores de la Roma y el propio Mourinho se retir
 
 
 
+Arte y Cultura
+
+
+Museos de MinCultura se unen a la conmemoración internacional del Museum Week
+
+Este evento cultural ha venido creciendo hasta incluir más de 60.000 participantes de más de 100 países. 
+Uno de los temas que se va tratar es el cambio climático y el 18 de mayo en Colombia se celebrá
+el Día Internacional de los Museos a través de un conversatorio virtual.
+
+En Colombia, los quince museos del Ministerio de Cultura presentan una nutrida agenda cultural
+a través de sus redes sociales y plataformas digitales, que permitirá unirse y disfrutar de este contenido desde sus hogares.
+ 
+Cabe destacar que desde 2014, Museum Week ha venido creciendo hasta incluir más de 60.000 participantes de más de 100 países y se convirtió en uno de los primero eventos culturales virtuales a nivel mundial.
+
+“En el entorno actual es fundamental que permanezcamos unidos mientras estamos físicamente separados.
+Estando unida, la comunidad cultural internacional puede traer felicidad y unidad cuando más lo necesitamos."
+
+Por su parte, en el país se celebrará el lunes 18 de mayo el Día Internacional de los Museos a través de un conversatorio virtual, que tiene como objetivo
+convertirse en un punto de encuentro para celebrar la diversidad de perspectivas que conforman las comunidades y el personal de los museos.
+
+ 
+ 
