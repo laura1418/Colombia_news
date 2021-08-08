@@ -59,3 +59,19 @@ Por distintos lugares pueden verse robots desinfectantes, cascos inteligentes, d
 Es el propio presidente chino Xi Jinping quien ha hecho un llamado al sector tecnológico del país que ayude a combatir el covid-19.
 "En la batalla contra Covid-19, hay diversas tecnologías emergentes que han realizado inmensas contribuciones de una manera inesperada, creativa y sorprendentemente receptiva", dijo Lu Chuanying, un alto funcionario de Global Cyberspace Governance, una empresa con sede en Shanghái.
 
+
+## Novedades Arte y Cultura
+
+# Museos de MinCultura se unen a la conmemoración internacional del Museum Week
+
+Este evento cultural ha venido creciendo hasta incluir más de 60.000 participantes de más de 100 países. Uno de los temas que se va tratar es el cambio climático y el 18 de mayo en Colombia se celebrará el Día Internacional de los Museos a través de un conversatorio virtual.
+
+En Colombia, los quince museos del Ministerio de Cultura presentan una nutrida agenda cultural, a través de sus redes sociales y plataformas digitales, que permitirá unirse y disfrutar de este contenido desde sus hogares durante la semana de Museos o Museum Week hasta el domingo 17 de mayo de 2020.
+
+Los que museos colombianos que participan son: Museo Nacional de Colombia, Casa Museo Quinta de Bolívar, Museo de la Independencia-Casa del Florero, Museo Colonial, Museo Santa Clara, Museos Caro y Cuervo y Fragmentos, Espacio de Arte y Memoria, Casa Museo Rafael Núñez. Museo Alfonso López Pumarejo, Museo Antón García de Bonilla, Museo Gran Convención, Casa Museo Rafael Núñez, Museo Alfonso López Pumarejo, entre otros.
+
+Cabe destacar que desde 2014, Museum Week ha venido creciendo hasta incluir más de 60.000 participantes de más de 100 países y se convirtió en uno de los primero eventos culturales virtuales a nivel mundial en Facebook, Instagram, Twitter, Weibo, WeChat y VKontakte.  La cuenta de Museum Week es administrada por Culture For Cause Network, una organización sin fines de lucro que tiene como objetivo apoyar causas de interés general en las redes sociales. 
+
+“En el entorno actual es fundamental que permanezcamos unidos mientras estamos físicamente separados. Estando unida, la comunidad cultural internacional puede traer felicidad y unidad cuando más lo necesitamos."
+
+Por su parte, en el país se celebrará el lunes 18 de mayo el Día Internacional de los Museos a través de un conversatorio virtual, que tiene como objetivo convertirse en un punto de encuentro para celebrar la diversidad de perspectivas que conforman las comunidades y el personal de los museos. Durante este evento hablarán de los proyectos de inclusión, igualdad o diversidad más significativos en los que hayan trabajado o esté en proceso.
