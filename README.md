@@ -50,3 +50,15 @@ Aunque este ‘Juego de la Muerte’ ha sido practicado por jóvenes de diferent
 En Venezuela los videos difundidos en redes sociales se encuentran en poder de las autoridades quienes trabajan para detener estos delicados juegos que afectan la salud de las personas.
 
 Por su parte  docentes y padres de familia de ambos países hacen un llamado a los jóvenes a no dejarse tentar por estos retos y ser más cuidadoso a la hora de usar internet. 
+
+Novedades "tecnologícas"
+
+Coronavirus: las innovadoras tecnologías que está utilizando China para combatir el covid-19 (y las preocupaciones que plantean)
+
+En el corazón de la epidemia de coronavirus en China, en la ciudad de Wuhan, se están desplegando todo tipo de tecnologías para luchar contra la enfermedad.
+
+Por distintos lugares pueden verse robots desinfectantes, cascos inteligentes, drones equipados con cámaras térmicas y hasta un avanzado software de reconocimiento facial.
+
+Es el propio presidente chino Xi Jinping quien ha hecho un llamado al sector tecnológico del país que ayude a combatir el covid-19.
+
+"En la batalla contra Covid-19, hay diversas tecnologías emergentes que han realizado inmensas contribuciones de una manera inesperada, creativa y sorprendentemente receptiva",  dijo Lu Chuanying, un alto funcionario de Global Cyberspace Governance, una empresa con sede en Shanghái.
