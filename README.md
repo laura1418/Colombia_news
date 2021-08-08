@@ -10,13 +10,12 @@ El gran maestro Carlos Paz es un hombre pequeño que habla suave, pero que baila
 Y su historia hace parte de 'Un sueño llamado Delirio', la serie que va los domingos en Telepacífico, a las 8:40 p. m.
 
 
+
 Deportes
 
 Pretemporada: Resultados de los doce amistosos con equipos de Primera
 
 Doce equipos de Primera han disputado este sábado partidos de pretemporada a seis días de que se estrene LaLiga Santander en Mestalla. También debía jugar el Sevilla ante el Aston Villa en Birmingham pero se suspendió su viaje por motivos relacionados con la Covid-19.
-
-
 
 AMISTOSOS DE PRETEMPORADA
 Wolves 0-1 Celta (Final)
@@ -36,26 +35,18 @@ Betis 5-2 Roma
 FINAL. Acaba el partido y los jugadores de la Roma y el propio Mourinho se retiran muy enfadados con el colegiado Figueroa Vázquez. El Betis pone fin a la pretemporada con una goleada.
 
 
+Novedades "Juegos de moda"
 
-Arte y Cultura
+Titulado el "juego de la muerte", peligroso reto que se vuelve viral entre los jóvenes"
+Un reciente reto conocido a través de redes sociales tiene en alerta a autoridades, docentes y padres de familia ya que, la mayoría de veces, se realiza en los planteles educativos.
 
+El ‘Shocking Game’, ‘Juego de la asfixia’ o ‘Juego de la Muerte’ es el nuevo reto que entre los jóvenes, el cual consiste en  inducir una persona al desmayo.
+Según lo evidenciado en redes sociales, esta peligrosa práctica consiste en provocar desmayo en una persona a través de la asfixia intencional. 
 
-Museos de MinCultura se unen a la conmemoración internacional del Museum Week
+Varios videos en internet muestran que una persona es asfixiada por otra hasta perder el conocimiento, sin embrago en otros casos la situación se sale de control ya que al provocar falta de oxígeno en el cerebro para producir el desmayo, las personas convulsionan. 
 
-Este evento cultural ha venido creciendo hasta incluir más de 60.000 participantes de más de 100 países. 
-Uno de los temas que se va tratar es el cambio climático y el 18 de mayo en Colombia se celebrá
-el Día Internacional de los Museos a través de un conversatorio virtual.
+Aunque este ‘Juego de la Muerte’ ha sido practicado por jóvenes de diferentes países, se ha evidenciado especialmente en Colombia y Venezuela por lo que varios padres de familia del país vecino lanzaron las alertas a través de redes sociales para detener esta práctica.
 
-En Colombia, los quince museos del Ministerio de Cultura presentan una nutrida agenda cultural
-a través de sus redes sociales y plataformas digitales, que permitirá unirse y disfrutar de este contenido desde sus hogares.
- 
-Cabe destacar que desde 2014, Museum Week ha venido creciendo hasta incluir más de 60.000 participantes de más de 100 países y se convirtió en uno de los primero eventos culturales virtuales a nivel mundial.
+En Venezuela los videos difundidos en redes sociales se encuentran en poder de las autoridades quienes trabajan para detener estos delicados juegos que afectan la salud de las personas.
 
-“En el entorno actual es fundamental que permanezcamos unidos mientras estamos físicamente separados.
-Estando unida, la comunidad cultural internacional puede traer felicidad y unidad cuando más lo necesitamos."
-
-Por su parte, en el país se celebrará el lunes 18 de mayo el Día Internacional de los Museos a través de un conversatorio virtual, que tiene como objetivo
-convertirse en un punto de encuentro para celebrar la diversidad de perspectivas que conforman las comunidades y el personal de los museos.
-
- 
- 
+Por su parte  docentes y padres de familia de ambos países hacen un llamado a los jóvenes a no dejarse tentar por estos retos y ser más cuidadoso a la hora de usar internet. 
